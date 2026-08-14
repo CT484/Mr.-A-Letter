@@ -1,3 +1,3 @@
 # Mr.-A-Letter
 
-Hi
+Hi, I'm Collin Ting a Sophomore attending Chatsworth Charter High School. Some basic things about me is that 
