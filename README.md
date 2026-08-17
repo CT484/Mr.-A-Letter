@@ -19,4 +19,5 @@ Some fun facts about me are:
 
 
 
-# collage
+# Collage
+![image collage](collage.png)
