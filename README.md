@@ -20,4 +20,5 @@ Some fun facts about me are:
 
 
 # Collage
-![image collage](collage.png)
+
+<img width="597" height="331" alt="collage" src="https://github.com/user-attachments/assets/30173708-ced5-460c-88cf-e02fa927b87c" />
