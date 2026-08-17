@@ -13,6 +13,8 @@ Some fun facts about me are:
 - I like anime
 - I have a collection of action figures
 
+Over the summer, I went on a cruise to Alasaka, Went to Hawaii, and volunteered at my Tae-Kwon-Do gym. My favorite memory is definitely at my friends birthday party. I also played lots of video games as well as get A's in two summer classes and finish my drivers Ed. 
+
  # playlist
 
 [link]()
