@@ -17,7 +17,7 @@ Over the summer, I went on a cruise to Alasaka, Went to Hawaii, and volunteered 
 
  # playlist
 
-[link]()
+[link](https://open.spotify.com/playlist/1oTFXBXGAiw3JVnUTLZ3kI?si=ypkj2_YbSCi0HkO5HKpgCw&utm_source=copy-link&pi=-5n9FYNaSxSEx)
 
 
 
