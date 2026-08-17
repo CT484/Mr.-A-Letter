@@ -1,19 +1,19 @@
 # Mr.-A-Letter
 
-Hi, I'm Collin Ting a Sophomore attending Chatsworth Charter High School. Some basic things about me is that **MATH** is my favorite subject. Some things I liked are:
+Hi, I'm Collin Ting a Sophomore attending Chatsworth Charter High School. Some basic things about me is that **MATH** is my favorite subject. Some things I like are:
 - Cats
 - Tennis
 - Video Games
 - Sleeping
 
-My favorite type of food is Chinese food. My favorite color is orange. I am currently on the *tennis team* and *play doubles*. In the future, I hope to pursue a career in engineering. I don't necessarily have a preference for which engineering, so any type of engineering would work
+My favorite type of food is Chinese food. My favorite color is orange. I am currently on the *tennis team* and *play doubles*. In the future I hope to pursue a career in engineering. I don't necessarily have a preference for which engineering, so any type of engineering would work
 
 Some fun facts about me are:
 - I qualified for nationals in Tae-Kwon-Do
 - I like anime
 - I have a collection of action figures
 
-Over the summer, I went on a cruise to Alasaka, Went to Hawaii, and volunteered at my Tae-Kwon-Do gym. My favorite memory is definitely at my friends birthday party. I also played lots of video games as well as get A's in two summer classes and finish my drivers Ed. 
+Over the summer, I went on a cruise to Alaska, went to Hawaii, and volunteered at my Tae-Kwon-Do gym. My favorite memory is definitely at my friends birthday party. I also played lots of video games as well as got A's in two summer classes and finished my drivers Ed. 
 
  # Playlist
 
